@@ -1,1 +1,1 @@
-# ghandis-flipflop
+# Artist project
